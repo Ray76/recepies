@@ -23,7 +23,7 @@
  
 Aubergine wuerfeln
   
-![](https://www.kochwiki.org/wiki/Datei:Zwiebeln-w%C3%BCrfeln.JPG)  
+![](https://www.kochwiki.org/images/thumb/3/3f/Zwiebeln-w%C3%BCrfeln.JPG/120px-Zwiebeln-w%C3%BCrfeln.JPG)  
 zwiebel wuerfeln
   
   
